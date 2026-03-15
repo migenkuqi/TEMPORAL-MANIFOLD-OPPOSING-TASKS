@@ -1,0 +1,2 @@
+# TEMPORAL-MANIFOLD-OPPOSING-TASKS
+Perfect uncertainty
